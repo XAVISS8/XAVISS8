@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @XAVISS8
+- 👀 I’m interested in CREATING TECHNOLOGY 
+- 🌱 I’m currently learning WEB DEV , PYTHON , SQL , 
+- 💞️ I’m looking to collaborate on TECH
+- 📫 How to reach me JUST HMU
